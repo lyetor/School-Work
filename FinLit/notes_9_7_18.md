@@ -1,4 +1,4 @@
-#**Liabilities**
+#Liabilities
 * Money that you owe
 * Ex: Buy a pair of shoes with a credit card, that you pay off at a later date
 * Not paying these off impacts your credit score
@@ -19,5 +19,4 @@
 
 * Interest rate: the rate the lender charges for using an asset
 * [Car Loan Calculator](https://www.carpaymentcalculator.net/)
-* [Car Loan Spreadsheet] (https://docs.google.com/spreadsheets/d/1nU_GvEu4pqClFQjWD-aOyNFso86Ym4M205ztQVP8yWo/edit#gid=1564562402)
-* 
+* [Car Loan Spreadsheet](https://docs.google.com/spreadsheets/d/1nU_GvEu4pqClFQjWD-aOyNFso86Ym4M205ztQVP8yWo/edit#gid=1564562402)
