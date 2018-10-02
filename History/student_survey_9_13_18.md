@@ -30,12 +30,12 @@ play ultimate Frisbee, and have been doing that since a very young age.
 
 5. Favorite:
     Music: The music I listen to varies based on my mood, but I enjoy hip-hop,
-           older rock, and piano when I'm studying.
+    ​       older rock, and piano when I'm studying.
     Books: The list of my favorite books includes the Throne of Glass, the 
-           Demon King, Fablehaven, and other fantasy books.
+    ​       Demon King, Fablehaven, and other fantasy books.
     Podcasts: Cortex, Planet Money, and ATP
     Food: I love most food you put in front of me, but my favorite food is 
-          Indian food, which we eat at home every day.
+    ​      Indian food, which we eat at home every day.
 
 6. Other activities at SAAS?
 I play varsity Frisbee and do varsity debate.
