@@ -1,2 +1,19 @@
 ### Bartolomé Biography   
 
+Born in 1484 in Seville, Spain Bartolome de Las Casas was a Spanish historian and good friend of Christopher Columbus. Not only was he a historian, but Casas was a Dominican missionary who was the first to expose the oppression of American Natives by the Europeans. Bartolome was also known as a social reformer, who was the first to call for the abolition of slavery. Known for being a prolific writer, he published the History of Indies in 1875, and would work for the Spanish Court, pushing his progressive opinions.  
+
+His life started in Seville, Spain, and he is believed to have fought in Granada as a soldier in 1497. Soon after being a soldier, he studied Latin in the Seville Cathedral academy. Shortly thereafter, in 1502, he left for Hispaniola with the Governor, Nicolas de Ovando. For this expedition, he received a grant of the Native’s land, and would become the first holy person in America. He served as a priest, starting around 1513. 
+
+Bartolome’s twelve years in America were spent as a participant in capturing the Caribbean, but he wasn’t indifferent to the fate of the Native people; right after this, Casas gave his land back to the governor in protest of the mistreatment of Natives.  Francisco Jiménez de Cisneros, the archbishop of Toledo, was the most influential person to back Casas’s cause. In November 1516 he set sail for America to investigate the status of the Indies as a priest-prosecutor. Bartolome hoped to change the Spanish opinion on the Natives and aid the Indigenous people. 
+
+Casas’s hope to reform the Spanish’s treatment of the Natives began with spending a year there assessing how the Indigenous were being treated. He hoped for the peaceful colonization of the Americas through recruiting the Native farmers as colonists. Bartolome began stopping the oppression of the Natives by presenting to his idea to King Charles I and the Spanish parliament. The idea was approved, and Bartolome, with Spanish farmers, started his voyage in 1520 to America to set up a new colony in the Gulf of Paria. In 1522 his planned went south due to an insufficient number of farmers, opposition from the Dominican Republic, and an attack by the Indians. 
+
+Bartolome abandoned his idea of colonization and went to the Dominican Republic, and joined their order. Four years after that he began to write one of his major works, which was meant to be the precursor to his masterpiece: The History of Indies. Rather than being a historically accurate book, it was a prophetic interpretation of events. The only interruption to his book, was to send three letters to Madrid detailing the unjust oppression of the Native Americans. 
+
+Casas spent time exploring Central America, while his thoughts on the Spanish oppression brought him much conflict and pain. He then awaited an audience with Charles V to discuss his reformed ideas. Las Casas then entered a very peaceful time in his life, being an influential figure in the Spanish court, sharing his progressive ideas. The servitude of the Natives was irreversible, but not officially approved.
+
+Bartolome then entered an age where he was an irreplaceable advisor to both the Council of the Indies and the King. In 1562 the final prologue to his 
+
+History of Indies
+
+ was published, and he wrote that the masterpiece should be published forty years after his death. Bartolome then passed away in July 18, 1566 in Madrid, Spain.
