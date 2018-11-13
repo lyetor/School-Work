@@ -7,3 +7,6 @@ Religious leaders shape God in their own way, and preach that to others. When lo
 
 
 This passage depicts Lauren's thoughts towards the shape-able nature of God, and how one is meant to interact with said figure. It's clear from the passage that Olemina preaches the neutral nature of God, not taking a side on the good or the bad, instead of just being present. Additionally, the passage illustrated Lauren's idea that we have preemptively prepare for and be ready to embrace change, rather than just 
+
+
+
