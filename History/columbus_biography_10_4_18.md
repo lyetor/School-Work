@@ -12,8 +12,4 @@ Bartolome abandoned his idea of colonization and went to the Dominican Republic,
 
 Casas spent time exploring Central America, while his thoughts on the Spanish oppression brought him much conflict and pain. He then awaited an audience with Charles V to discuss his reformed ideas. Las Casas then entered a very peaceful time in his life, being an influential figure in the Spanish court, sharing his progressive ideas. The servitude of the Natives was irreversible, but not officially approved.
 
-Bartolome then entered an age where he was an irreplaceable advisor to both the Council of the Indies and the King. In 1562 the final prologue to his 
-
-History of Indies
-
- was published, and he wrote that the masterpiece should be published forty years after his death. Bartolome then passed away in July 18, 1566 in Madrid, Spain.
+Bartolome then entered an age where he was an irreplaceable advisor to both the Council of the Indies and the King. In 1562 the final prologue to his History of Indies was published, and he wrote that the masterpiece should be published forty years after his death. Bartolome then passed away in July 18, 1566 in Madrid, Spain.
