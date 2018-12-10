@@ -6,7 +6,8 @@
 	* The father basically sold him off
 
 * Year of Travel
-	* He started in China in 1271-1295
+
+  * He started in China in 1271-1295
 
 * Route
 	* Started in Europe
@@ -20,7 +21,8 @@
 	* He had to deliver specific things, from China to the Pope
 
 * How do we know?
-	* Written accounts by himself and others
+
+  * Written accounts by himself and others
 
 * Did he influence other explorers 
 	* CC took a copy of his book on his expeditions 
@@ -59,7 +61,8 @@
 	7. 1431-1433 Died at Sea 
 
 * Route
-	* See above
+
+  * See above
 
 * Purpose
 	* Wanted to be recognized
@@ -79,7 +82,8 @@
 	* Emperor made them stop voyages
 
 * Remarkable discoveries 
-	* Good boat building skills
+
+  * Good boat building skills
 
 
 **Ibn Battuta**
